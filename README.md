@@ -1,0 +1,2 @@
+# s.l.a.b
+SLAB BOT DISCORD [WIP]
